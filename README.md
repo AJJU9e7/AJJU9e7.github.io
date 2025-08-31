@@ -9,13 +9,12 @@ Gamer, Singer, Content Creator - Sharing epic gaming moments, immersive gameplay
 Vibe with Ajju — A warrior forged in pain, risen from ashes, turning hardships into opportunities. Creative, real, and always on fire 🔥. Pouring my heart, soul, and passion into everything I do - authentic, chill, unstoppable, blending entertainment with community. Whether it’s gaming walkthroughs, live streams, or music content, I create experiences that connect with the global gaming and music community and fans of original music.
 
  
-If you’re here for:
-      
-        *Epic gaming moments, live streams, and gameplay highlights
-        *Music performances, vocal riyaz sessions, and creative content
-        *A real connection with a passionate gamer, streamer, and content creator
-
-…then you’re in the right place.
+If you’re here for:<br>
+    *Epic gaming moments, live streams, and gameplay highlights<br>
+    *Music performances, vocal riyaz sessions, and creative content<br>
+    *A real connection with a passionate gamer, streamer, and content creator<br>
+  
+…then you’re in the right place.<br>
 
 
 Connect with me:📌<br>
