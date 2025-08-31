@@ -15,8 +15,8 @@ If you’re here for:<br>
 --*A real connection with a passionate gamer, streamer, and content creator<br>
   
 …then you’re in the right place.<br>
-
-
+<br>
+<br>
 Connect with me:📌<br>
 🔴 YouTube 👉 https://www.youtube.com/@AJJU9e7<br>
 🟣 Instagram 👉 https://instagram.com/AJJU9e7<br>
