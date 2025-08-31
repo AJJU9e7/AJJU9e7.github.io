@@ -22,8 +22,7 @@ Connect with me:📌<br>
 🟣 Instagram 👉 https://instagram.com/AJJU9e7<br>
 🟣 Twitch 👉 https://www.twitch.tv/AJJU9e7<br>
 🟢 Twitter / X 👉 https://twitter.com/AJJU9e77<br>
-
-
+<br>
 ⚡️ Let’s vibe – Gamer and music creator, always on fire 🔥. 
 
 Regards,
