@@ -1,8 +1,8 @@
 # AJJU9e7.github.io
 AJJU9e7 - Gamer, Singer, Content Creator | Youtube & Twitch | Epic Live Streams & Music Performances
-
+<br>
+<br>
 Hey, I’m Ajju.
-
 
 Gamer, Singer, Content Creator - Sharing epic gaming moments, immersive gameplay highlights, and live music performances. Feel the vibe, it’s all about connecting, having fun, and staying real.
 
