@@ -10,9 +10,9 @@ Vibe with Ajju — A warrior forged in pain, risen from ashes, turning hardships
 
  
 If you’re here for:<br>
-      *Epic gaming moments, live streams, and gameplay highlights<br>
-      *Music performances, vocal riyaz sessions, and creative content<br>
-      *A real connection with a passionate gamer, streamer, and content creator<br>
+--*Epic gaming moments, live streams, and gameplay highlights<br>
+--*Music performances, vocal riyaz sessions, and creative content<br>
+--*A real connection with a passionate gamer, streamer, and content creator<br>
   
 …then you’re in the right place.<br>
 
