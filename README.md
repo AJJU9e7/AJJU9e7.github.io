@@ -18,11 +18,11 @@ If you’re here for:
 …then you’re in the right place.
 
 
-Connect with me:📌
-🔴 YouTube 👉 https://www.youtube.com/@AJJU9e7 
-🟣 Instagram 👉 https://instagram.com/AJJU9e7 
-🟣 Twitch 👉 https://www.twitch.tv/AJJU9e7 
-🟢 Twitter / X 👉 https://twitter.com/AJJU9e7 
+Connect with me:📌<br>
+🔴 YouTube 👉 https://www.youtube.com/@AJJU9e7<br>
+🟣 Instagram 👉 https://instagram.com/AJJU9e7<br>
+🟣 Twitch 👉 https://www.twitch.tv/AJJU9e7<br>
+🟢 Twitter / X 👉 https://twitter.com/AJJU9e77<br>
 
 
 ⚡️ Let’s vibe – Gamer and music creator, always on fire 🔥. 
